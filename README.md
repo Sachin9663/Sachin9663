@@ -14,3 +14,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+## Find me around the web 🌎
+
+- Linkedin - [linkedin.com/in/sachinkumar9663](https://www.linkedin.com/in/sachinkumar9663) 
+
+- Medium - [medium.com/@sachin.mca16.du](https://medium.com/@sachin.mca16.du)
+
+- Facebook - [fb.com/sachinkumar9663](https://www.facebook.com/sachinkumar9663) 
+
+- Instagram - [instagram.com/sachin_kumar9663/](https://www.instagram.com/sachin_kumar9663/) 
