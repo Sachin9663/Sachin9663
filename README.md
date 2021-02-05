@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 
 - Linkedin - [linkedin.com/in/sachinkumar9663](https://www.linkedin.com/in/sachinkumar9663) 
 
-- Medium - [medium.com/@sachin.mca16.du](https://medium.com/@sachin.mca16.du)
+- Medium - [medium.com/@sachin.mca16.du](https://jsdevelopers.medium.com/)
 
 - Facebook - [fb.com/sachinkumar9663](https://www.facebook.com/sachinkumar9663) 
 
